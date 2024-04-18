@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a massive Project 
 - 📫 How to reach me +2348145055049
 - 😄 Pronouns: just me "be yourself"
-- ⚡ Fun fact: cool and humble
+- ⚡ Fun fact: Life is Short, Coding is longer
 
 <!---
 IpayeBabatunde/IpayeBabatunde is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
